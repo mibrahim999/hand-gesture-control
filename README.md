@@ -8,5 +8,4 @@ Back and For click kr sakte hain.
 Aur ye ke is mein Volume up down kr sakte Browser ka open hona lazzmi nai hai.
 sadfh hcfuh asuh dfchcsnuofhiuadshiufhyaew7h fiua
 flshd fhahsdiufhiuash
-fha hdj hfi
-dfdajsh fiu h eiuhfiuhwaiuhf iyser
+
