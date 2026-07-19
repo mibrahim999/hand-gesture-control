@@ -6,4 +6,6 @@ Youtube video pe jo adds aa jati gesture se wo skip kr sakte hain.
 Video forward , Backward kr sakte hain.
 Back and For click kr sakte hain.
 Aur ye ke is mein Volume up down kr sakte Browser ka open hona lazzmi nai hai.
-
+nznjxbndznbxb
+skhdnsjjdj
+kdjdjjdjjdjdnwbjzksbsjjd
